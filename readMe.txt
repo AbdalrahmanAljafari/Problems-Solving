@@ -1,1 +1,1 @@
-in this file i will solve problem inhance my solving skils
+in this life i will solve problem enhance my solving skills
