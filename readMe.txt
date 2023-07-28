@@ -1,1 +1,1 @@
-in this life i will solve problem enhance my solving skills
+In this project I will solve problems in Python and improve my problem-solving skills
